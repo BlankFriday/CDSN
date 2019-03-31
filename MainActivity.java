@@ -1,6 +1,2 @@
 555555555555
 1111111
-goodmorning
-dhasdbasbjdajsdjfa
-vdshffhuhsrgf
-888888888
