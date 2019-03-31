@@ -1,1 +1,2 @@
-Good Night
+好 夜
+goodmorning
